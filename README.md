@@ -1,2 +1,2 @@
 # GithubForDeveloper
-อย่าเสือกให้มาก ไปหาทำอย่างอื่นเถอะ อย่าปัญญาอ่อนให้มาก
+xxxxxxxxxxxx
